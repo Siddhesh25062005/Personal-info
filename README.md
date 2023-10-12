@@ -1,5 +1,5 @@
 # Siddhesh Sakle #
-###### Akola, India 444005 | 9766114825 | [Gmail](siddheshsakle@gmail.com) ######
+###### Akola, India 444005 |  [Gmail](siddheshsakle@gmail.com) ######
 
 ## ***Summary*** ##
 
@@ -40,6 +40,5 @@
 
 
 
-[Gmail](siddheshsakle@gmail.com)  [Linkedin](https://www.linkedin.com/in/siddhesh-sakle-47777327a/) [Twitter (X)](https://twitter.com/SiddheshSakle) [Instagram](https://www.instagram.com/siddhesh_sakle/?next=%2F)
-
+[Gmail](siddheshsakle@gmail.com)  [Linkedin](https://www.linkedin.com/in/siddhesh-sakle-47777327a/) 
 
